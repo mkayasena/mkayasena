@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mkayasena
 - 👀 I’m interested in codes and projects
-- 🌱 I’m learning full stack developer
+- 🌱 I’m full stack developer
 - 📫 you can connact me at kayasenaa62@gmail.com
 
 <!---
