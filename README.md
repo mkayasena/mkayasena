@@ -8,6 +8,6 @@ full-time developer, some-time normal person
 
 ~ links
 
-to follow me on linkedin -> https://www.linkedin.com/in/mkayasena
+to follow me on linkedin -> https://www.linkedin.com/in/xkayasena
 
-for more information about me -> https://www.instagram.com/mkayasena
+for more information about me -> https://www.instagram.com/xkayasena
